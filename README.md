@@ -1,1 +1,0 @@
-# calidad_de_software_guizado_alexander
